@@ -9,7 +9,7 @@
 **Favorite restaurants:**
 
 1. My kitchen.
-2. Coma,.
-3. Risa
-4. Juca Alemao
+2. Coma.
+3. Risa.
+4. Juca Alemao.
 5. Gotcha.
